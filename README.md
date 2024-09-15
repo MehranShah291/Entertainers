@@ -1,1 +1,0 @@
-Poetry and Quotes
